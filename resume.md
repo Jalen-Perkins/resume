@@ -3,5 +3,5 @@
 **Address:** Golden, CO
 ### Education
 - Colorado School of Mines, 2021--Present
--George Washington University Online Highschool 2020--2021
--
+- George Washington University Online Highschool 2020--2021
+- Grovetown Highshool 2017-2020
