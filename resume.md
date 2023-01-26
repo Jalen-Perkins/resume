@@ -5,3 +5,9 @@
 - Colorado School of Mines, 2021--Present
 - George Washington University Online Highschool 2020--2021
 - Grovetown Highshool 2017-2020
+
+### Skills
+- Python
+- Stuff
+- Things
+- git bash
