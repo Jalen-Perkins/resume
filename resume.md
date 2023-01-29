@@ -18,6 +18,6 @@
 - photography
 
 **here is a pallet knife i drew as part of my senior project**
-![realistic charcoal pallet knife drawing](https://mines0-my.sharepoint.com/:i:/g/personal/jperkins1_mines_edu/EYelenHfTrFHjiqrw5vKsaUBCW2acS39pZEpXRlptD8OjQ?e=6mDlNj)
+![realistic charcoal pallet knife drawing](pallet-knife.jpeg)
 
 [photo album](https://photos.app.goo.gl/M5ac5XTjr42yR2QT7 "Google photo album with some of my favorite pictures that I've taken")
